@@ -1,5 +1,3 @@
-i'm just some teenager from the bay area who likes to program
-
-im working on some personal projects and helping out with karrots
+bay area teenager programming personal projects and helping with karrots
 
 (she/her) 🌺
